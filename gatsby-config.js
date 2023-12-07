@@ -9,13 +9,13 @@
  */
 module.exports = {
   siteMetadata: {
-    title: `Matt's Starter Blog`,
+    title: `The Source of All Wealth`,
     author: {
       name: `Matt Malone`,
       summary: `who lives and works in Florida writing useful things.`,
     },
     description: `A starter blog demonstrating what Gatsby can do.`,
-    siteUrl: `https://gatsbystarterblogsource.gatsbyjs.io/`,
+    siteUrl: `https://sourceofallwealth.com/`,
     social: {
       twitter: `mattagape`,
     },
