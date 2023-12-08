@@ -1,4 +1,5 @@
 import * as React from "react"
+import Helmet from "react-helmet";
 import { Link } from "gatsby"
 
 const Layout = ({ location, title, children }) => {
@@ -22,6 +23,9 @@ const Layout = ({ location, title, children }) => {
 
   return (
     <div className="global-wrapper" data-is-root-path={isRootPath}>
+      <Helmet>
+        <meta name="facebook-domain-verification" content="zwp5dp5nzxoptve91n8yickm3b4nmz" />
+      </Helmet>
       <header className="global-header">{header}</header>
       <main>{children}</main>
       <footer>
