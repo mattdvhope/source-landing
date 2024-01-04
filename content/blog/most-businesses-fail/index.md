@@ -19,5 +19,5 @@ This is, in fact, a very good goal to strive toward. The Source of All Wealth wi
 In the coming days, I will show you how to begin your business relationship with The Source of All Wealth.
 ---
 
-Be sure to follow the Source of All Wealth page to look for more information on how to make your business a profit-making engine of growth!
+Be sure to follow the Source of All Wealth Facebook page to look for more information on how to make your business a profit-making engine of growth!
 
