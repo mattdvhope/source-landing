@@ -16,7 +16,7 @@ I will apply a unique mixture of "art" and "science" to your letter. I will test
 
 And, I will apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and other greats to your letter.
 
-Even though I work with digital marketing (sometimes), my heart of hearts pines for the glorious ad-copy of old! If I get ahold of your letter, I'll wring it through the "old school" filter before I'm through with it.
+Even though I work with digital marketing (sometimes), my heart of hearts pines for the glorious ad-copy of old! When I get ahold of your letter, I'll wring it through the "old school" filter before I'm through with it.
 
 Keep in mind, in addition to online letters, I also work with direct mail letters, newspaper ads, etc.
 
