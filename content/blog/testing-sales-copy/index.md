@@ -12,7 +12,7 @@ Within the next couple of months, I'll have my "Sales Letter Copywriting testing
 
 In the meantime, start following my Facebook page and stay alert to any upcoming announcements. 
 
-I will apply a unique mixture of "art" and "science" to your letter. I will test a whole slew of factors including your teaser copy, your headline, the body of your letter, your bullets, your offer, your P.S.'s, your signature, etc. So much to test! I'll work through them all to the n-th degree until you radically bump up your response and conversion rates.
+I will apply a unique mixture of "art" and "science" to your letter. I will test a whole slew of factors including your teaser copy, your headline, the body of your letter, your bullets (fascinations), your offer, your P.S.'s, your signature, etc. So much to test! I'll work through them all to the n-th degree until you radically bump up your response and conversion rates.
 
 And, I will apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and other greats to your letter.
 
