@@ -18,6 +18,8 @@ And, I will apply the timeless principles of the "Old School Copywriting Masters
 
 Even though I work with digital marketing (sometimes), my heart of hearts pines for the glorious ad-copy of old! If I get ahold of your letter, I'll wring it through the "old school" filter before I'm through with it.
 
+Keep in mind, in addition to online letters, I also work with direct mail letters, newspaper ads, etc.
+
 By the way, if you don't have a sales letter written up yet, no worries. I'll have a hand at it myself -- and test the living daylights out of it before it goes out into the wild.
 
 Start your business relationship with The Source of All Wealth today!
