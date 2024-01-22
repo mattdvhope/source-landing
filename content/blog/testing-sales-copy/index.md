@@ -14,7 +14,7 @@ In the meantime, start following my Facebook page and stay alert to any upcoming
 
 I will apply a unique mixture of "art" and "science" to your letter. I will test a whole slew of factors including your teaser copy, your headline, the body of your letter, your bullets, your offer, your P.S., your signature, etc. So much to test! I'll work through them all to the n-th degree until you radically bump up your response and conversion rates.
 
-And, I will apply the timeless principles of the "Old Copywriting Masters" like Robert Collier, Claude Hopkins, and other greats to your letter.
+And, I will apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and other greats to your letter.
 
 Even though I work with digital marketing (sometimes), my heart of hearts pines for the glorious ad-copy of old! If I get ahold of your letter, I'll wring it through the "old school" filter before I'm through with it.
 
