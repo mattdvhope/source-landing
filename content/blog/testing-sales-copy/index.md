@@ -6,15 +6,21 @@ description: "I can help you test and transform your Sales Letter."
 
 Dear Reader,
 
-Most Sales Letters stink. I plan to have my testing and editing service up and running within the next couple months to help remedy that situation for you if that's the case.
+Most Sales Letters stink. You and I both know that.
 
-In the meanwhile, I hope you can start following my Facebook page and stay alert to any upcoming announcements. 
+Within the next couple of months, I'll have my "Sales Letter Copywriting testing service" up and running to help businessmen like you transform your jalopy of a Sales Letter into a fine-tuned roadster.
 
-With my service, I will apply a unique combination of "art" and "science" to your letter. I will test a whole slew of factors in your letter including teaser copy, your headline, the body of your letter, your bullets, your offer, your P.S., your signature, etc. So many factors! I'll test them all to the n-th degree until you radically bump up your response and conversion rates.
+In the meantime, start following my Facebook page and stay alert to any upcoming announcements. 
 
-Oh, and by the way, if you don't even have a sales letter written up yet, I can help you write that up.
+I will apply a unique mixture of "art" and "science" to your letter. I will test a whole slew of factors including your teaser copy, your headline, the body of your letter, your bullets, your offer, your P.S., your signature, etc. So much to test! I'll work through them all to the n-th degree until you radically bump up your response and conversion rates.
 
-In the coming days, I will show you how to begin your business relationship with The Source of All Wealth.
+And, I will apply the timeless principles of the "Old Copywriting Masters" like Robert Collier, Claude Hopkins, and other greats to your letter.
+
+Even though I work with digital marketing (sometimes), my heart of hearts pines for the glorious ad-copy of old! If I get ahold of your letter, I'll wring it through the "old school" filter before I'm through with it.
+
+By the way, if you don't have a sales letter written up yet, no worries. I'll have a hand at it myself -- and test the living daylights out of it before it goes out into the wild.
+
+Start your business relationship with The Source of All Wealth today!
 ---
 
 ---
