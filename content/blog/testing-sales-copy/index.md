@@ -20,7 +20,7 @@ Even though I work with digital marketing (sometimes), my heart of hearts pines 
 
 Keep in mind, in addition to online letters, I also work with direct mail letters, newspaper ads, etc.
 
-By the way, if you don't have a sales letter written up yet, no worries. I'll have a hand at it myself -- and test the living daylights out of it before it goes out into the wild.
+By the way, if you don't have a sales letter written up yet, no worries. I'll take a turn at it myself -- and test the living daylights out of your new letter before it goes out into the wild.
 
 Start your business relationship with The Source of All Wealth today!
 ---
