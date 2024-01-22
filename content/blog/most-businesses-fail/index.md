@@ -1,7 +1,7 @@
 ---
 title: “Most Small Businesses Fail”
 date: "2024-01-05T22:12:03.284Z"
-description: "Here I'll explain what most men regret as they near the end of their days."
+description: "Here I'll explain why most businesses fail."
 ---
 
 Dear Reader,
