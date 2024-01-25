@@ -62,7 +62,7 @@ A rip-roaring headline piques your interest. You dip your toe into the first sen
 
 You will traverse through a jungle thicket of bullets, paragraphs, testimonials, features, and benefits until you've digested every scrap of the copy.
 
-A stellar sales letter will cause the little fire in your belly, first set alight by the headline, to metamorphosize into a blazing inferno of desire by the end of your read! The letter will convince you to buy... or at least move you to grasp for the free offer.
+A stellar sales letter will cause the little fire in your belly, first set alight by the headline, to metamorphosize into a blazing inferno of desire by the end of your read. The letter will convince you to buy... or at least move you to grasp for the free offer.
 
 {I have a whole lot more to write, by the way. This letter is currently under construction! ;-) So stay in touch on Facebook! You know the routine. Like my page, send me a Facebook Message, yadda, yadda, yadda....}
 
