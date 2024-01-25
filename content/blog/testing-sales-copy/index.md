@@ -36,7 +36,7 @@ Even though I fiddle with digital marketing data, as a history buff, my heart of
 
 Think of it this way. Would you rather gaze upon a building of late nineteenth century design or a building slapped together today.
 
-Take a look at a public library built a century ago... a beautiful work of architectural design.
+Take a look at a public library built a century ago... a beautiful work of architectural wonder.
 
 Then take a look at one built today: UGLY! BORING! BLAND! SOULLESS!
 
