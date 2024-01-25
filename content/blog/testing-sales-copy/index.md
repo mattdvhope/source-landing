@@ -30,7 +30,7 @@ So much to test! I will cycle through them all to the n-th degree until **you ra
 Think about how this would TRANSFORM your life.
 
 ### Old-timer Artistry
-I will also apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and the many other great ad men of old to your letter.
+I will also apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and the many other great ad-men of old to your letter.
 
 Even though I fiddle with digital marketing data, as a history buff, my heart of hearts pines for the glorious ad-copy of days gone by. When I get ahold of your letter, I will custom tailor it to "golden ad-copy standards of yonder years" before I hand it back to you.
 
@@ -58,7 +58,7 @@ Despite the incessant hype you hear from some online digital marketers, the long
 Just the other day, I read a long form sales letter by a lady trying to convince her readers that the long form sales letter had died! She wanted to get people to buy into her whiz bang array of "modern" digital marketing solutions. And it took a whole lot of verbal 'splaining' to get her point across! Her letter was boring and uninspiring, by the way. (I guess that's why she doesn't like sales letters.)
 
 ### Pulling You In
-A rip-roaring headline piques your interest. You dip your toe into the first sentence below. This draws you into the second sentence. You find yourself reading the third sentence. Before you know it, a wave of fascination carries you along to the very end of the letter. You take the time to read your whole way through! Why? **Because you want to believe what it promises.**
+A rip-roaring headline piques your interest. You dip your toe into the first sentence below. This draws you into the second sentence. You find yourself reading the third sentence. Before you know it, a wave of fascination carries you along to the very end of the letter. You took the time to read your whole way through. Why? **Because you want to believe what it promises.**
 
 You will traverse through a jungle thicket of bullets, paragraphs, testimonials, features, and benefits until you've digested every scrap of the copy.
 
