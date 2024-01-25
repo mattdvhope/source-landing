@@ -27,7 +27,7 @@ I will rapidly test--with real prospects similar to your own--a whole slew of fa
 
 So much to test! I will cycle through them all to the n-th degree until **you radically bump up your response and conversion rates**. Imagine jumping from a half percent conversion rate to a one percent conversion rate... or more.
 
-Think about how this would TRANSFORM your life.
+Think about how this would TRANSFORM your life financially.
 
 ### Old-timer Artistry
 I will also apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and the many other great ad-men of old to your letter.
