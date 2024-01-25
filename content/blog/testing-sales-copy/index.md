@@ -30,7 +30,7 @@ So much to test! I will cycle through them all to the n-th degree until **you ra
 Think about how this would TRANSFORM your life financially.
 
 ### Old-timer Artistry
-I will also apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and the many other great ad-men of old to your letter.
+I will also apply the timeless principles of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and the many other great "ad men of old" to your letter.
 
 Even though I fiddle with digital marketing data, as a history buff, my heart of hearts pines for the glorious ad-copy of days gone by. When I get ahold of your letter, I will custom tailor it to "golden ad-copy standards of yonder years" before I hand it back to you.
 
