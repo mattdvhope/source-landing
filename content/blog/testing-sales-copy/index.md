@@ -37,21 +37,20 @@ I know what I said might sound like a bunch of snake-oil salesmanship hype, but 
 
 **_"How have you proven it to me, Matt?"_** you ask.
 
-Question for you: Are you not now TRANSFIXED TO THIS SALES LETTER? Are you not now engaged and enraptured by the words flying in front of your eyeballs?
-
-I believe you are.
-
-Why?
-
-Because I SPRINT TESTED the daylights out this ad-copy before it ever even got in front of you. Your now avid reading of this letter proves to you that my sprint testing system worked.
+I've proven it because I have SPRINT TESTED the daylights out this ad-copy before it ever even got in front of you. Your avid reading of this letter proves to you my sprint testing system worked.
 
 The old ad-man acronym, "A.I.D.A.," from the 1920s stands for Attention, Interest, Desire, Action.
 
-You can see how my sales letter attracted your "attention" in spades. And it has also attracted your "interest." It probably even kindled a fair amount of "desire" in your belly--**especially when you contemplate how your profits could soon soar**. In fact, it might take only a little nudge to encourage you toward "action."
+> 1. Attention
+> 2. Interest
+> 3. Desire
+> 4. Action
 
-Imagine getting your prospects to this point of "action" a whole lot quicker and a whole lot more frequently than ever before--orders of magnitude better than before. Imagine what that would mean to you.
+You can see how my sales letter attracted your "attention" in spades. And it also attracted your "interest." It probably even kindled a fair amount of "desire" in your belly--**especially when you contemplate how your profits could soon soar**. In fact, it might take only a little nudge to encourage you toward "action."
 
-Think of how ad-copy like this--**that transfixes the eyeballs & emotions of your hottest prospects**--could TRANSFORM YOUR BUSINESS AND YOUR LIFE!
+Imagine getting your prospects to this point of "action" a whole lot quicker and a whole lot more frequently than ever before. Orders of magnitude better than before. Imagine what that would mean to you.
+
+Think of how ad-copy like this--**that transfixes the emotions of your hottest prospects**--could TRANSFORM YOUR BUSINESS AND YOUR LIFE!
 
 ### Old-timer Artistry
 In tandem with the "New-fangled Data Science," I will also apply the timeless artistry of the "Old School Copywriting Masters" like Robert Collier, Claude Hopkins, and the many other great "ad-men of old" to your letter.
@@ -114,6 +113,8 @@ That's why most ad-copy these days does such a lousy job of bringing in revenue.
 
 ### Online and Offline Copy
 In glorious contrast, whether you sell with a website, social media, **direct mail** (my personal favorite), magazine ads, or newspaper ads--or anything else--I will walk alongside you in the crafting of an ad-copy masterpiece.
+
+As you can see right here in this letter, I've set a major LIMITATION on myself. You don't see any fancy graphics. You don't see any fancy images. You don't see any fancy font. All you're looking at is black courier typeface on a white background. Because of this "limitation," I have FORCED myself to "dig deep" to bring forth fast-moving, desire-triggering copywriting. Limitations force my IMAGINATION to work overtime!
 
 ### No Sales Letter yet?
 If you don't have a sales letter written up yet, no worries. I'll take a turn at it myself -- and inexpensively test the living daylights out of your new letter with real prospects before it goes out into the wild.
