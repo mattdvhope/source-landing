@@ -70,7 +70,7 @@ And when I say, "write a sales letter for you," you need to understand something
 
 The amount of time I spend with "pen to paper" is only a fraction of the time I'll spend on your letter. The vast majority of the time I spend in crafting this copywriting masterpiece for you will be in RESEARCH.
 
-The great copywriting legend Gary Halbert once said, "A great copywriter is not a great writer, but rather, a great LEARNER." Another copywriting legend, Eugene Schwartz, said, "Copywriting is not writing. It is assembling." What he meant was that if copywriting is done extremely well, the copywriter will ASSEMBLE the incredible BENEFITS that your product brings to a customer. And he will present these benefits in a way that sinks deep into the hearts of your ideal prospects.
+The copywriting legend Gary Halbert once said, "A great copywriter is not a great writer, but rather, a great LEARNER." Another copywriting legend, Eugene Schwartz, said, "Copywriting is not writing. It is assembling." What he meant was that if copywriting is done extremely well, the copywriter will ASSEMBLE the incredible BENEFITS that your product brings to a customer. And he will present these benefits in a way that sinks deep into the hearts of your ideal prospects.
 
 So if you ask me to write a sales letter for you, I will spend the vast majority of my time, like a detective, searching for clues as to which specific and emotional benefits your product brings to the customer.
 
@@ -88,11 +88,11 @@ Just the other day, I read a sales letter by a lady trying to convince her reade
 ### Pulling You In
 Here's how gold-standard copywriting really works: A rip-roaring headline piques your interest. Then you dip your toe into the first sentence below. This draws you into the second sentence. Your mind then effortlessly flows into the third sentence. Before you know it, a wave of fascination carries you along to the very end of the letter. You take the time to read the whole way through. Why? **Because you want to believe what the letter promises.**
 
-You will traverse through a jungle thicket of bullets, paragraphs, testimonials, features, and benefits until you've digested every scrap of the copy because **you yearn for what it promises**.
+You will traverse through a jungle thicket of bullets, paragraphs, testimonials, features, and benefits until you've digested every scrap of the copy because **you yearn for what it could bring into your life**.
 
 A stellar sales letter will cause the little fire in your belly, first set alight by the headline, to metamorphosize into a blazing inferno of desire by the end of your read. The letter will convince you to buy... or at least move you to grasp for the free offer.
 
-Why? Because such a letter convinces you that what it sells will bring massively more value into your life than whatever money you'll spend.
+Why? Because such a letter convinces you that what it sells will bring massively more value into your life than whatever money you'll have to spend.
 
 {I will write more in the coming days. This letter is currently under construction. So stay in touch on Facebook. You know the drill. Like my page, send me a Facebook Message, yadda, yadda...}
 
