@@ -58,11 +58,13 @@ Then take a look at one built today: UGLY! BORING! BLAND! SOULLESS!
 
 That's the exact same feeling you get when you stare at most ad-copy these days. It reminds me of modern "art." Ugggh!
 
+And, by the way, most modern ad-copy does a lousy job of bringing in revenue for your business.
+
 ### Online and Offline
 Whether you sell with a website, social media, direct mail, magazine ads, or newspaper ads--or anything else--I will walk alongside you in the crafting of an ad-copy masterpiece.
 
 ### No Sales Letter yet?
-If you don't have a sales letter written up yet, no worries. I'll take a turn at it myself -- and test the living daylights out of your new letter before it goes out into the wild.
+If you don't have a sales letter written up yet, no worries. I'll take a turn at it myself -- and test the living daylights out of your new letter with real prospects before it goes out into the wild.
 
 And when I say, "write a sales letter for you," you need to understand something.
 
@@ -90,7 +92,7 @@ You will traverse through a jungle thicket of bullets, paragraphs, testimonials,
 
 A stellar sales letter will cause the little fire in your belly, first set alight by the headline, to metamorphosize into a blazing inferno of desire by the end of your read. The letter will convince you to buy... or at least move you to grasp for the free offer.
 
-Why? Because such a letter convinces you that what it sells will bring massively more value into your life than whatever money you'll have to spend.
+Why? Because such a letter convinces you that what it sells will bring massively more value into your life than whatever money you'll spend.
 
 {I will write more in the coming days. This letter is currently under construction. So stay in touch on Facebook. You know the drill. Like my page, send me a Facebook Message, yadda, yadda...}
 
