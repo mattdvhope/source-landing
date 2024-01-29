@@ -23,7 +23,7 @@ Within the next couple of months, I will get my "Sales Letter Copywriting testin
 I will apply a unique mixture of "new-fangled data science" and "old-timer artistry" to your letter:
 
 ### New-fangled Data Science
-I will rapidly test--with real prospects similar to your own--a whole slew of factors including your teaser copy, your headline, the body of your letter, your bullets (fascinations), your testimonials, your offer, your signature, your P.S.'s, etc.
+I will **rapidly test**--with real prospects similar to your own--a whole slew of factors including your teaser copy, your headline, the body of your letter, your bullets (fascinations), your testimonials, your offer, your signature, your P.S.'s, etc.
 
 I will cycle through them all to the n-th degree until **you radically bump up your response and conversion rates**. Imagine jumping from a half percent conversion rate to a one percent conversion rate... to more.
 
