@@ -17,7 +17,7 @@ We are forced to endure hundreds of these "odes to artlessness" every single day
 ### The long-forgotten past
 It wasn't always like this.  Way back in the 1920s, ad copy sang. Ad copy told you stories. Ad copy spoke craftsmanship, finesse, and flair into your heart. And do you know what? Ad copy back then made you wanna buy!
 
-Within the next couple of months, I will get my "Sales Letter Copywriting testing service" up and running to help businessmen like you transform your "modern lemon" of a Sales Letter into a fine-tuned roadster of classic design.
+Within the next couple of months, I will get my "Sales Letter Copywriting testing service" up and running to help businessmen like you transform your "modern lemon" of a Sales Letter into a fine-tuned roadster of classic design that brings in loads more profits for you.
 
 ### The Best of the New, the Best of the Old
 I will apply a unique mixture of "new-fangled data science" and "old-timer artistry" to your letter:
