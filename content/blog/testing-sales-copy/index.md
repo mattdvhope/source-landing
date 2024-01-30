@@ -156,7 +156,7 @@ I do want to help lots of small businessmen with their sales letters, but I'm on
 
 Matt Malone.
 
-As a sometimes cantankerous and always picky 57-year-old ;-), I refuse to "outsource" my copywriting to any young whippersnapper copywriter. Dealing with the quality-control hassles of outsourcing just ain't my cup of tea. I custom design the copy all myself. And I've only got 24 hours in a day.
+As a sometimes cantankerous and always picky 57-year-old ;-), I refuse to "outsource" my copywriting to any young whippersnapper copywriter. Dealing with the quality-control hassles of outsourcing just ain't my cup of tea. I custom design all of the copy myself. And I've only got 24 hours in a day.
 
 I've also got seven kids (five still at home) plus my wife, Erin. They don't want me working till ten o'clock every night. I work a 40-hour week so I can enjoy watching my kids grow up. As I'm sure you know, the time you take away from your kids you will never get back.
 
