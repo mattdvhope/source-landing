@@ -181,7 +181,7 @@ Market research is intricate and exacting and can be extremely frustrating for s
 
 My success will ride on your success.
 
-### This is Not for Everyone
+### This is Not for Everyone, or is it?
 While I've sent this letter out to a significant number of businessmen, and I've precisely targeted its recipients, your responding to this letter will not guarantee that I will take you on as my client.
 
 I could possibly take you on as a client if...
