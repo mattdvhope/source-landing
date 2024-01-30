@@ -181,8 +181,8 @@ Market research is intricate and exacting and can be extremely frustrating for s
 
 My success will ride on your success.
 
-### This is Not for Everyone, or is it?
-While I've sent this letter out to a significant number of businessmen, and I've precisely targeted its recipients, your responding to this letter will not guarantee that I will take you on as my client.
+### This is Not for Everyone... or is it?
+While I've sent this letter out to a significant number of businessmen, and I've precisely targeted its recipients, your responding to this letter will not guarantee that I take you on as my client.
 
 I could possibly take you on as a client if...
 > 1. You have been in business for a minimum of two years. I can text with you if you have questions about this criterion.
@@ -190,7 +190,7 @@ I could possibly take you on as a client if...
 > 3. You are in a field that is conducive to "Direct Response Marketing" (DRM). Some products (like cheap and low-quality commodities) do not sell well with DRM.
 > 4. You are very open to a long term business relationship with me. As you may know, the cost of acquiring a first-time client is about eight times the cost of a returning client. I am looking for **long lasting relationships with a small number of clients** rather than a flash-in-the-pan "quick sale" to a whole slew of enquirers.
 > 5. You are extremely open to "Matt Malone's style" of hard-hitting, thrill-ride copywriting. I REFUSE to write "corporate stiff" &/or "namby-pamby" copywriting that puts prospects to sleep.
-> 6. You believe with every fiber of your being that you sell a top-of-the-line super-high-quality product. These days, we over-use the term "passion," but I do need to see your passion regarding your product. My ad-copy will directly reflect this. Therefore passion must exist.
+> 6. You believe with every fiber of your being that you sell a top-of-the-line super-high-quality product. These days, we over-use the term "passion," but I do want to see your passion regarding your product. My ad-copy will directly reflect this. Therefore passion must exist.
 > 7. You sell a product that does not violate my personal values. I will NOT write copy for controlled substances, gambling, anything even remotely related to sex, or anything that damages the body. You can look at me as kind of an old-fashioned, conservative-values type of fellow who happens to enjoy modern gadgetry. I promote products that help people, not hurt them--be they man, woman, or child.
 > 8. You are a "good personality fit" with me. We'll be communicating a lot, so I want BOTH of us to enjoy a stellar business relationship.
 
