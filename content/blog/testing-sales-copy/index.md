@@ -19,7 +19,7 @@ It wasn't always like this.
 
 Way back in the 1920s, ad copy sang. Ad copy told you stories. Ad copy spoke craftsmanship, finesse, and flair into your life. And do you know what? Ad copy in those days made you wanna buy!
 
-Within the next few months, I will get my "Sales Letter Copywriting testing service" up and running to help businessmen like you transform your "modern lemon" of a Sales Letter into a fine-tuned roadster of classic design **that brings in loads more profits for you**.
+Within the next few months, I will get my "Sales Letter Copywriting testing and writing service" up and running to help businessmen like you transform your "modern lemon" of a Sales Letter into a fine-tuned roadster of classic design **that brings in loads more profits your way**.
 
 ### The Best of the New, the Best of the Old
 I will apply a unique-in-all-the-world recipe of "new-fangled data science" and "old-timer artistry" to your letter:
@@ -31,13 +31,13 @@ I will cycle through them all to the n-th degree until **you radically bump up y
 
 And I'm not talking about has-been, water-under-the-bridge, been-there-done-that "A/B Testing" either. (That's so 20-teens.)
 
-Instead, I'm talkin' about up-to-the-minute, latest-and-greatest, and yet still mega-battle-tested, SPRINT TESTING. Once I get done running your ad-copy through my sprint testing wringer, you'll have prospects TRANSFIXED to your ad-copy and **aching to buy your product**!
+Instead, I'm talkin' up-to-the-minute, latest-and-greatest, and yet still mega-battle-tested, SPRINT TESTING. Once I get done running your ad-copy through my sprint testing wringer, you'll have prospects TRANSFIXED to your ad-copy and **aching to buy your product**!
 
 I know what I said might sound like a bunch of snake-oil salesmanship hype, but it's not. I'm telling you the truth. And I've just proven it to you.
 
 **_"How have you proven it to me, Matt?"_** you ask.
 
-I've proven it because I have SPRINT TESTED the daylights out this ad-copy before it ever even got in front of you. Your avid reading of this letter proves to you my sprint testing system worked.
+I've proven it because I have SPRINT TESTED the daylights out this ad-copy before it ever even got in front of your eyes. Your avid reading of this letter proves to you my sprint testing system worked.
 
 The old ad-man acronym, "A.I.D.A.," from the 1920s stands for Attention, Interest, Desire, Action.
 
@@ -46,7 +46,7 @@ The old ad-man acronym, "A.I.D.A.," from the 1920s stands for Attention, Interes
 > 3. Desire
 > 4. Action
 
-You can see how my sales letter attracted your "attention" in spades. And it also attracted your "interest." It probably even kindled a fair amount of "desire" in your belly--**especially when you contemplate how your profits could soon soar**. In fact, it might take only a little nudge to encourage you toward "action."
+You can see how my sales letter first attracted your <u>attention</u> in spades. It then attracted your <u>interest</u>. It probably even kindled a "fire in your belly of <u>desire</u>"--**especially when you contemplate how your profits could soon soar**. In fact, it might take only a little nudge to encourage you toward <u>action</u>.
 
 Imagine getting your prospects to this point of "action" a whole lot quicker and a whole lot more frequently than ever before. Orders of magnitude better than before. Imagine what that would mean to you.
 
