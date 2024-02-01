@@ -171,28 +171,28 @@ By entering this "temporary door of opportunity," you will get the combination o
 > 1. World-class, old-school, classic, long-form copywriting combined with...
 > 2. Thoroughly modern and tested data science methodology applied to (a) the determining of your ideal audience/customer-type and (b) the intricate and yet inexpensive testing of every aspect of your sales letter for such people.
 
-After having run your sales letter through such an extensive and rigorous process (which takes about 8-9 weeks with me rather than the year-plus it often takes for many sales letters today--**particularly for my specialty of Direct Mail sales letters**), you will have in your hands a "golden sales letter" that I GUARANTEE will bring you signifantly increased revenue and profits for your business.
+After having run your sales letter through such an extensive and rigorous process (which takes about 8-9 weeks with me rather than the year-plus it often takes for many sales letters today--**particularly for my specialty of Direct Mail sales letters**), you will have in your hands a "golden sales letter" that will bring you signifantly increased revenue and profits for your business.
 
 And, if it does not bring you these increases within six months of our signing our notarized contract, you will have the option asking for ALL the money back that you paid to me which I will return promptly and courteously to you.
 
-The reason I offer such a ridiculous guarantee is that I believe you will be deliriously happy with the results, revenue-wise & profit-wise, from my work.
+The reason I'm handing you such a ridiculous offer is that I believe you will be deliriously happy with the results, revenue-wise & profit-wise, from my work.
 
 Market research is intricate and exacting and can be extremely frustrating for someone in the midst of it. But you have my guarantee that I will not stop until you see major (and measurable) increases in your business's profits.
 
 My success will ride on your success.
 
 ### This is Not for Everyone... or is it?
-While I've sent this letter out to a significant number of businessmen, and I've precisely targeted its recipients, your responding to this letter will not guarantee that I take you on as my client.
+While I've sent this letter out to a significant number of businessmen, and I've precisely targeted its recipients, your responding to this letter does not mean I will necessarily take you on as my client.
 
-I could possibly take you on as a client if...
-> 1. You have been in business for a minimum of two years. I can text with you if you have questions about this criterion.
+Here's what I'm looking for in an ideal client for me...
+> 1. You have been in business for a minimum of two years. You can text me about this if you have questions.
 > 2. You can show me your business is profitable or near-profitable. I can discuss my criteria for "profitabilty" privately with you.
-> 3. You are in a field that is conducive to "Direct Response Marketing" (DRM). Some products (like cheap and low-quality commodities) do not sell well with DRM.
+> 3. You are in a field conducive to "Direct Response Marketing" (DRM). Some products (like cheap and low-quality commodities) do not sell well with DRM.
 > 4. You are very open to a long term business relationship with me. As you may know, the cost of acquiring a first-time client is about eight times the cost of a returning client. I am looking for **long lasting relationships with a small number of clients** rather than a flash-in-the-pan "quick sale" to a whole slew of enquirers.
-> 5. You are extremely open to "Matt Malone's style" of hard-hitting, thrill-ride copywriting. I REFUSE to write "corporate stiff" &/or "namby-pamby" copywriting that puts prospects to sleep.
-> 6. You believe with every fiber of your being that you sell a top-of-the-line super-high-quality product. These days, we over-use the term "passion," but I do want to see your passion regarding your product. My ad-copy will directly reflect this. Therefore passion must exist.
-> 7. You sell a product that does not violate my personal values. I will NOT write copy for controlled substances, gambling, anything even remotely related to sex, or anything that damages the body. You can look at me as kind of an old-fashioned, conservative-values type of fellow who happens to enjoy modern gadgetry. I promote products that help people, not hurt them--be they man, woman, or child.
-> 8. You are a "good personality fit" with me. We'll be communicating a lot, so I want BOTH of us to enjoy a stellar business relationship.
+> 5. You are extremely open to "Matt Malone's style" of hard-hitting, thrill-ride copywriting. I REFUSE to write bland, "corporate stiff" style copywriting that puts prospects to sleep.
+> 6. You believe with every fiber of your being that you sell a top-of-the-line super-high-quality product. These days, we over-use the word "passion," but I WANT you to have it. My ad-copy will reflect your passion. Therefore it must exist.
+> 7. You sell a product that does not violate my personal values. I will NOT write copy for controlled substances, gambling, anything even remotely related to sex, or anything that damages the body. You can look at me as kind of an old-fashioned, conservative-values type of fellow who likes tech. I promote products that help people, not hurt them--be they man, woman, or child.
+> 8. You are a "good personality fit" with me. We'll communicate a lot, so I want BOTH of us to enjoy a stellar business relationship.
 
 {I will write more in the coming days. This letter is currently under construction. I'm not ready at this point to start any business relationships yet. **But that day will soon arrive!** So stay in touch via Facebook. You know the drill. Like my page, send me a Facebook Message to which I'll respond, etc, etc.}
 
