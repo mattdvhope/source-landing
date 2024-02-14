@@ -4,6 +4,9 @@ date: "2024-01-22T22:15:00.000Z"
 description: "I can help you test and transform your Sales Letter."
 ---
 
+{Note to the Reader. This landing page is currently under construction. The offer presented in the Facebook ad is currently under development. Thank you so much for your patience! Enjoy your read here!}
+
+
 Dear Reader,
 
 Most sales copy stinks.
