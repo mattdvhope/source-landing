@@ -24,6 +24,6 @@ _You will need to harken back to **the advertising days of old**._
 
 So like/follow my page on Facebook to find out how you can soon **transform your sales**!
 
-Blessing,
+Sincerely,
 Matt Malone
 
