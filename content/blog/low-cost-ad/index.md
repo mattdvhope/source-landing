@@ -8,9 +8,9 @@ description: "I can help you create a powerfully motivating ad that costs a rela
 
 Dear Reader,
 
-In the next month, I will role out a service that helps you build a "golden ad."
+In the next month, I will role out a service that will help you to build a "golden ad."
 
-Every owner's dream is an ad that costs very little and yet brings in huge sales.
+Every business owner's dream is an ad that costs very little and yet brings in huge sales.
 
 My service will help you to realize this dream.
 
