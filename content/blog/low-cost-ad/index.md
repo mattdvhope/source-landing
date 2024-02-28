@@ -1,6 +1,6 @@
 ---
 title: “Attracting Lots of Buyers With A Low Cost Ad”
-date: "2024-02-27T22:15:00.000Z"
+date: "2024-02-28T22:15:00.000Z"
 description: "I can help you create a powerfully motivating ad that costs a relatively small amount of money."
 ---
 
