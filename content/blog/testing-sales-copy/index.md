@@ -6,12 +6,6 @@ description: "I can help you test and transform your Sales Letter."
 
 ---
 
-{Note to the Reader. This landing page is under construction. The offer presented in the Facebook Ad is still being developed, so I apologize for its "click bait" nature. I'd actually set up the offer as a test to see which offer clients would like most. Thank you for understanding. If you'd like to get in touch, please drop me a message via the "Source of All Wealth" Facebook page. I'll be happy to answer any questions you might have.}
-
-{If you like, you can read my "still under development" letter below that explains my product... to a certain degree. Blessings!}
-
----
-
 Dear Reader,
 
 Most sales copy stinks.
