@@ -20,7 +20,7 @@ You will need to travel backwards in time.
 
 _You will need to harken back to **the advertising days of old**._
 
-So like/follow my page on Facebook to find out how you can soon **skyrocket your sales conversion percentages**!
+So like/follow my page on Facebook to find out how you can soon **skyrocket your sales conversion rates**!
 
 _"Hitch your wagon to a star!"_ -- Ralph Waldo Emerson
 
