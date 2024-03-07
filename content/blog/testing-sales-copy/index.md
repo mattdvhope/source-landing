@@ -17,7 +17,7 @@ Most display ads, brand image builders, video ads, and sales letters bore you to
 You and I are forced to endure hundreds of these "odes to artlessness" every single day.
 
 ### The long-forgotten past
-It wasn't always like this...
+It wasn't always like this.
 
 Way back in the 1920s, ad copy sang. Ad copy told you stories. Ad copy spoke craftsmanship, finesse, and flair into your life. And do you know what? Ad copy in those days made you wanna buy!
 
