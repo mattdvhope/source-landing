@@ -24,3 +24,5 @@ So like/follow my page on Facebook to find out how you can soon **skyrocket your
 
 _"Hitch your wagon to a star!"_ -- Ralph Waldo Emerson
 
+Click on the <i>link</i> below to learn how you can <b>TRANSFORM your sales copy</b>!
+

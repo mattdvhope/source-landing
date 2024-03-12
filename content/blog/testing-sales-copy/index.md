@@ -21,7 +21,7 @@ It wasn't always like this.
 
 Way back in the 1920s, ad copy sang. Ad copy told you stories. Ad copy spoke craftsmanship, finesse, and flair into your life. And do you know what? Ad copy in those days made you wanna buy!
 
-Within the next few months, I will get my "Sales Letter Copywriting testing and writing service" up and running to help businessmen like you transform your "modern lemon" of a Sales Letter into a fine-tuned roadster of classic design **that brings in loads more profits your way**.
+Within the next month, I will get my "Sales Letter Copywriting testing and writing service" up and running to help businessmen like you transform your "modern lemon" of a Sales Letter into a fine-tuned roadster of classic design **that brings in loads more profits your way**.
 
 ### The Best of the New, the Best of the Old
 I will apply a unique-in-all-the-world recipe of "new-fangled data science" and "old-timer artistry" to your letter:
