@@ -9,14 +9,17 @@ const BlogIndex = ({ data, location }) => {
   const siteTitle = data.site.siteMetadata?.title || `Title`
   const posts = data.allMarkdownRemark.nodes
 
-  if (posts.length === 0) {
+  if (posts.length >= 0) {
     return (
       <Layout location={location} title={siteTitle}>
         <Bio />
-        <p>
+        {/*<p>
           No blog posts found. Add markdown posts to "content/blog" (or the
           directory you specified for the "gatsby-source-filesystem" plugin in
           gatsby-config.js)..
+        </p>*/}
+        <p>
+          🔧🚧 Site Under Construction 🪚👷🏻‍♂️. Order form for the novel, <strong>"The Source of All Wealth"</strong> coming soon!
         </p>
       </Layout>
     )
