@@ -1,23 +1,27 @@
-import * as React from "react"
-// import { Link, graphql } from "gatsby"
+import React, { useEffect } from "react"
 
-// import Bio from "../components/bio"
-// import Layout from "../components/layout"
-// import Seo from "../components/seo"
+const BlogIndex = () => {
 
+  useEffect(() => {
+    window.location.replace("https://learn.sourceofallwealth.com/novel/");
+  });
 
+  return;
 
-
-
-window.location.replace("https://learn.sourceofallwealth.com/novel/");
-
-const BlogIndex = () => <span/>
+}
 
 export default BlogIndex
 
 
 
 
+
+// import * as React from "react"
+// import { Link, graphql } from "gatsby"
+
+// import Bio from "../components/bio"
+// import Layout from "../components/layout"
+// import Seo from "../components/seo"
 
 
 // const BlogIndex = ({ data, location }) => {
